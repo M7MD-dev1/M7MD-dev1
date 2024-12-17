@@ -1,10 +1,5 @@
-تم صنع السكربت من قبل : h99d
-تم صنع السكربت من قبل : h99d
-تم صنع السكربت من قبل : h99d
-تم صنع السكربت من قبل : h99d
-تم صنع السكربت من قبل : h99d
+Morfen Store :
+
 https://discord.gg/ANUGWsJndn
-https://discord.gg/ANUGWsJndn
-https://discord.gg/ANUGWsJndn
-https://discord.gg/ANUGWsJndn
-https://discord.gg/ANUGWsJndn
+
+https://discord.gg/MFF
